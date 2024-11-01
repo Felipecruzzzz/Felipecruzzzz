@@ -9,4 +9,6 @@
 - pro meu futuro criar uma familia e ter muito dinheiro
 
 - 🙌🏼 FÉ EM DEUS
+
+- FACILIDADE EM APRENDER
   
