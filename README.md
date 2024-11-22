@@ -12,3 +12,4 @@
 
 - FACILIDADE EM APRENDER
   
+![](https://media1.tenor.com/m/vYtwgBwaFHMAAAAd/manga-toji.gif)
